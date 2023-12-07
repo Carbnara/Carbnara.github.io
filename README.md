@@ -6,8 +6,6 @@ Ma. Zamara F. Tutanes
 
 ![image](https://github.com/Carbnara/Carbnara.github.io/assets/152352545/eca9afad-3805-48cd-81c8-6bb1b2d76624) 
 
-![image](https://i.pinimg.com/564x/00/7e/33/007e338dac399deb3d33b825e40d6121.jpg)
-
 
 
 The Barbie Fashion Model Collection is a line of dolls introduced in 2000. The collection features dolls aimed at the adult collector, and is primarily sold via the Barbiecollector.com website and online retailers. The dolls in the collection are all made from a material called Silkstone, a durable material that simulates the weight and feel of porcelain dolls.
